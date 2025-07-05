@@ -1,16 +1,15 @@
-## Hi there 👋
+成人午夜性a-0705RQ
 
-<!--
-**R20250705/R20250705** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+点击访问：<a href="https://cfad.pages.dev/">国产欧美精品区一区二区三区</a>
 
-Here are some ideas to get you started:
+点击访问：<a href="https://gfd-5xg.pages.dev/">两性色午夜短视频在线观看</a>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+点击访问：<a href="https://fdhf-454.pages.dev/">免费黄色毛片</a>
+
+点击访问：<a href="https://bered.pages.dev/">亚洲福利在线视频</a>
+
+日本AV免费资源一直是广大用户关注的热门内容。为了满足大家对高质量、免费在线观看的需求，我们整合了当前最全、最稳定的日本成人影片资源站，无论你偏好无码、有码、剧情、制服、素人、人妻还是巨乳题材，都可以在这里轻松找到满意的作品。所有影片支持在线播放，画质涵盖720P到1080P，无需注册、无需下载、不卡顿、无广告干扰，真正实现流畅、高效的观影体验。
+
+本站每日更新最新番号，涵盖知名片商如S1、Prestige、Moodyz与东京热等，精选当红女优作品推荐，包括桥本有菜、三上悠亚、明日花绮罗等人气女星，满足你对演技、颜值和剧情的多重追求。通过智能搜索与清晰分类，用户可按女优名、番号、题材一键定位影片。页面支持移动端与桌面端自适应设计，不论你身在何处，都可随时随地尽情观看。
+
+<span style="display:none;">[Canonical link](https://github.com/R20250705/R20250705 ）</span>
